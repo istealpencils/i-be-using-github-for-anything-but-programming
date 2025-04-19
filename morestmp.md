@@ -25,6 +25,8 @@ moar stamps guys, right click download encouraged
 ![dwkevg-00d1c2dc-4d3c-4bc2-9425-7359db484b06supportpencil](https://github.com/user-attachments/assets/21a713e8-b3b2-4438-a154-e8710c33ab64)
 ![d2bm9ww-f90ea337-e9e7-43c1-8480-da686812bb1fWHATLETSGO](https://github.com/user-attachments/assets/140fe7b4-5f39-4a0b-b6e7-c97416df2fcf)
 ![tumblr_713643a153c7ff9a524dd18cadea7b25_11fc52c2_100madeintoapencil](https://github.com/user-attachments/assets/1c09f704-e722-447a-9b99-1969818cec6a)
+![INEEDMYPENCIL](https://github.com/user-attachments/assets/54bb8eb8-a765-4d09-a048-0acf0faddcb7)
+![hearmeoutpencilsdijfgiosjfdgsdfg](https://github.com/user-attachments/assets/a7252244-87f8-4f32-a16c-d858b5d02fcd)
 
 ![umjammerlammmmmmyyyyyyyy](https://github.com/user-attachments/assets/d452054e-9c79-42e7-a315-93a0f66097c7)
 ![inanimateinsaninisnisinisniosnisnaisn](https://github.com/user-attachments/assets/edf855cd-0ad6-418b-898f-3f89b91ee397)
