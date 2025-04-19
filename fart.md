@@ -27,3 +27,9 @@ lallalalalaaaa 27.03.2025 i have no idea how to make paw feet
 ![guhghghfhfghfdhgdhdfgh](https://github.com/user-attachments/assets/fa7eaa8e-e00e-47df-8890-9e530dc4c88c)
 
 we also got this guy![brusheroredfkgsopikerfg](https://github.com/user-attachments/assets/57a4e095-0aa3-47d3-9fc1-6560a85d2d9c) hello brusho
+
+fuck i forgot the third eye
+
+whatever
+
+![brushoapgoekrrgeoprgopd](https://github.com/user-attachments/assets/5fe17a43-f748-4fe9-9f1c-07744c729c81)
