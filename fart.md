@@ -20,3 +20,10 @@ lallalalalaaaa 27.03.2025 i have no idea how to make paw feet
 
 ![nailfileyayayaaaaaaaaa](https://github.com/user-attachments/assets/3e3b1412-e559-4a57-9bc7-c71b4418f784)
 
+19.04.2025 rose filled day
+
+![imalazyasssssssssssssssssssss](https://github.com/user-attachments/assets/c600e1e3-1578-450c-ad3b-782b1b7c1e02)
+![Безымянныйroroorororor](https://github.com/user-attachments/assets/14b32b24-c220-4f82-b1b6-60e2dafd59fe)
+![guhghghfhfghfdhgdhdfgh](https://github.com/user-attachments/assets/fa7eaa8e-e00e-47df-8890-9e530dc4c88c)
+
+we also got this guy![brusheroredfkgsopikerfg](https://github.com/user-attachments/assets/57a4e095-0aa3-47d3-9fc1-6560a85d2d9c) hello brusho
